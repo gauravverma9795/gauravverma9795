@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **gauravverma9795@gmail.com**
 
-- 📄 Here's my resume https://drive.google.com/file/d/1L_4PGhW27KTcjBrNHJHVPU6ZiPvnw0lH/view?usp=sharing
+- 📄 Here's my resume https://drive.google.com/file/d/1e-A4bxk5i9oBaLETdIXaREdgcVVKD8gJ/view?usp=sharing
 <h3 align="center">Connect with me:</h3>
 <p align="center">
   <a href="https://www.linkedin.com/in/gaurav-verma-282019267/" target="blank">
